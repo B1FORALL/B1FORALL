@@ -1,4 +1,3 @@
-- 👋 Hi, I’m @B1FORALL
-- 👀 I’m interested in programm writing/codding
+- 👋 Hi, I’m @B1FORALL BLUE EYES
 - 📫 How to reach me redkalinka.elena@gmail.com
 
